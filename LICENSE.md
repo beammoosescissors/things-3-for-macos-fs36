@@ -1,4 +1,4 @@
-
+Things 3 for macOS advanced Addon: version history & quick search is the best Things 3 for macOS addon, featuring version history and quick search. Safe, efficient, and optimized
 
 
 
